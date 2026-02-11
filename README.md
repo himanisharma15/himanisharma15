@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Himani Sharma
+ Hi 👋, I'm Himani Sharma
 **A passionate BCA student and aspiring Web Developer from India**
 
 Email Me 👉 ✉️ **himanisharma1506@gmail.com** For Collaboration/Project or Anything Else. 😊😊
